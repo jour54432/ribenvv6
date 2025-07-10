@@ -15,4 +15,4 @@
 在安全性方面，平台采用HTTPS加密保护用户隐私，确保浏览过程安全无忧。同时，无弹窗广告设计让用户专注于内容本身，营造安心的观影环境。  
 综上所述，午夜色情短视频平台凭借丰富的资源库、高清播放体验、免注册免下载便捷以及安全隐私保障，成为成人影视观看的优质选择。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/jour54432/ribenvv6 )</span>
